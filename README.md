@@ -1,0 +1,1 @@
+# 7sinif-matematik-soru-bankasi-2023-32
